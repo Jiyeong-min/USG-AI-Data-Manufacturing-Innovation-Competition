@@ -1,0 +1,1 @@
+# USG-AI-Data-Manufacturing-Innovation-Competition
